@@ -1,3 +1,4 @@
 burps
 
 I'd be usually in the randomest spot because that's probably where my close friends are at, usually in less croded areas like the fnf or tmc area near the lamp post (my fave spot idc if ur there i will not move even if u cover me)
+![:worm: counter on GitHub](https://komarev.com/ghpvc/?username=shiningumbreon)
