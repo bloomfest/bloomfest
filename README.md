@@ -4,4 +4,6 @@ I'd be usually in the randomest spot because that's probably where my close frie
 
 feel free to take the hair and accessories patterns but don't colorpick nor take the color of my skins or wholefully copy my skins, don't post it on any platforms thanks, if u want to rate my skins go ahead. that's my only permission for you no any other permissions but that.
 
+YOU SHOULD add me on Pokemon Masters EX heh.. I'll gladly accept ur friend request.. 4667659861087709 (ID)
+
 ![:worm:](https://komarev.com/ghpvc/?username=shiningumbreon&color=add8e6&label=🪱)
